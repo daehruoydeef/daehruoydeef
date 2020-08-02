@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+👯 I’m looking to collaborate on open source environmental projects
+🤔 Currently really busy with life and work
+
+
 <!--
 **daehruoydeef/daehruoydeef** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
