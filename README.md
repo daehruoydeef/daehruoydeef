@@ -4,3 +4,17 @@
 ⚡ Fun fact: I can wheelie my bike for 30 minutes
 🔭 I’m currently working on Climatic a CO2 Tracker App
 
+d
+d
+d
+d
+d
+d
+
+d
+d
+d
+d
+dd
+d
+
